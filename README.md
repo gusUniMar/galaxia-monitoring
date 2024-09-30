@@ -1,3 +1,6 @@
 Inicio da galaxia-monitoring
 
-Rodrigo
+João Antonio Pimentel Moura de Oliveira
+
+Rodrigo 
+
